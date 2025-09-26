@@ -17,8 +17,8 @@ Here are some ideas to get you started:
 
 I am kinda lazy to edit this, but if you are here, sure! Here is something for you
 
-I am just a student, trying to get my degree. I am kinda broke so if you try to scam me, I mean I have no money 🥲 If you want to hire me, please let me know
-I am probably doing something like IOT project, class project, and stuff that I wanna do but I dont have time to do until I rmb about it while I am lying on bed
+I am just a student, trying to get my degree. I am kinda broke so if you try to scam me, I mean I have no money 🥲 If you want to hire me, please let me know.
+I am probably doing something like IOT project, class project, and stuff that I wanna do but I dont have time to do until I rmb about it while I am lying on bed.
 
-That's it
+That's it.
 Hope you have a great day!
